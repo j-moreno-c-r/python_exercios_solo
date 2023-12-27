@@ -1,0 +1,1 @@
+Neste repositório colocarei meus auto desafios com suas respectivas respostas dependencias e propostas originais. 
